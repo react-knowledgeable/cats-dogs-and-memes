@@ -7,9 +7,11 @@
 
 # cats
 
-seriously there's a competition around who has the cutest cats
-
 ![](https://i.imgur.com/G0lUNBH.gif)
+
+https://i.imgur.com/G0lUNBH.gif
+
+seriously there's a competition around who has the cutest cats
 
 brian's cat
 ---
