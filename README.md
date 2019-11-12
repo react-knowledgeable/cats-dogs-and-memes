@@ -9,6 +9,8 @@
 
 seriously there's a competition around who has the cutest cats
 
+![](https://i.imgur.com/G0lUNBH.gif)
+
 brian's cat
 ---
 apparently we have a [brian's faction](https://twitter.com/brian_d_vaughn/status/1188653525556875264)
