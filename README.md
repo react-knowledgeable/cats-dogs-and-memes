@@ -1,9 +1,7 @@
 ## memes
 🚜 memes that shares spirits with rk
 
-
 ![win liao lor](https://i.pinimg.com/originals/d9/f0/c6/d9f0c65605242817e5b32f4678f76840.jpg)
-
 
 ## cats
 
@@ -13,6 +11,36 @@ https://i.imgur.com/G0lUNBH.gif
 
 seriously there's a competition around who has the cutest cats
 
+![](https://i.imgur.com/nMpCcSi.jpg)
+
+https://i.imgur.com/nMpCcSi.jpg
+
+Meme face cat ¯\_(ツ)_/¯
+
+![](https://i.imgur.com/wN8k50b.jpg)
+
+https://i.imgur.com/wN8k50b.jpg
+
+Random korean cafe cat
+
+![](https://i.imgur.com/KY123C8.jpg)
+
+https://i.imgur.com/KY123C8.jpg
+
+Paul's cat
+
+![](https://i.imgur.com/ePgIOPi.jpg)
+
+https://i.imgur.com/ePgIOPi.jpg
+
+Rachel's cat
+
+![](https://i.imgur.com/7M7ehtF.jpg)
+
+https://i.imgur.com/7M7ehtF.jpg
+
+Yet another meme face cat 
+
 ### brian's cat
 
 apparently we have a [brian's faction](https://twitter.com/brian_d_vaughn/status/1188653525556875264)
@@ -20,6 +48,8 @@ apparently we have a [brian's faction](https://twitter.com/brian_d_vaughn/status
 latest post by brian:
 
 ![](https://pbs.twimg.com/media/EH7yE-cVAAAkp4L?format=jpg&name=4096x4096)
+
+![](https://i.imgur.com/m4FAtpG.jpg)
 
 ### shawn's roommate's cat
 
@@ -36,3 +66,11 @@ we also fond of dogs
 ![](https://i.imgur.com/9gguyKD.jpg)
 
 https://i.imgur.com/9gguyKD.jpg
+
+![](https://i.imgur.com/TazYlf6.jpg)
+
+https://i.imgur.com/TazYlf6.jpg
+
+![](https://i.imgur.com/Y6giQCK.jpg)
+
+https://i.imgur.com/Y6giQCK.jpg
