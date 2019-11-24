@@ -59,6 +59,18 @@ then our friend swyx got a roommate's cat that we all love, [he has a twitter th
 
 ![](https://pbs.twimg.com/media/EHg781MWoAAqkcH?format=jpg&name=4096x4096)
 
+the truth is shawn bullies the cat ¯\\\_(ツ)_/¯
+
+![](https://i.imgur.com/rYPK5Zc.jpg)
+
+https://i.imgur.com/rYPK5Zc.jpg
+
+so the cat tries to eat him
+
+![](https://i.imgur.com/j8hw1p4.jpg)
+
+https://i.imgur.com/j8hw1p4.jpg
+
 ## dogs
 
 we also fond of dogs
