@@ -5,37 +5,37 @@
 
 ## cats
 
-![](https://i.imgur.com/G0lUNBH.gif)
+![wuttttttt](https://i.imgur.com/G0lUNBH.gif)
 
 https://i.imgur.com/G0lUNBH.gif
 
 seriously there's a competition around who has the cutest cats
 
-![](https://i.imgur.com/nMpCcSi.jpg)
+![#notamusedcatface](https://i.imgur.com/nMpCcSi.jpg)
 
 https://i.imgur.com/nMpCcSi.jpg
 
 Meme face cat ¯\_(ツ)_/¯
 
-![](https://i.imgur.com/wN8k50b.jpg)
+![when the cat owns the place](https://i.imgur.com/wN8k50b.jpg)
 
 https://i.imgur.com/wN8k50b.jpg
 
 Random korean cafe cat
 
-![](https://i.imgur.com/KY123C8.jpg)
+![when a kitten realises how good-looking it is](https://i.imgur.com/KY123C8.jpg)
 
 https://i.imgur.com/KY123C8.jpg
 
 Paul's cat
 
-![](https://i.imgur.com/ePgIOPi.jpg)
+![Pixel being cheeky](https://i.imgur.com/ePgIOPi.jpg)
 
 https://i.imgur.com/ePgIOPi.jpg
 
 Rachel's cat
 
-![](https://i.imgur.com/7M7ehtF.jpg)
+![actually from a plane movie thumbnail](https://i.imgur.com/7M7ehtF.jpg)
 
 https://i.imgur.com/7M7ehtF.jpg
 
@@ -47,9 +47,9 @@ apparently we have a [brian's faction](https://twitter.com/brian_d_vaughn/status
 
 latest post by brian:
 
-![](https://pbs.twimg.com/media/EH7yE-cVAAAkp4L?format=jpg&name=4096x4096)
+![wei's favourite cat, most likely](https://pbs.twimg.com/media/EH7yE-cVAAAkp4L?format=jpg&name=4096x4096)
 
-![](https://i.imgur.com/m4FAtpG.jpg)
+![best face on cat](https://i.imgur.com/m4FAtpG.jpg)
 
 ### shawn's roommate's cat
 
@@ -57,17 +57,17 @@ then our friend swyx got a roommate's cat that we all love, [he has a twitter th
 
 > [@hj_chen failing horribly at posing with the cat](https://twitter.com/swyx/status/1186764423878381571)
 
-![](https://pbs.twimg.com/media/EHg781MWoAAqkcH?format=jpg&name=4096x4096)
+![shawn has bad camera timing -_-](https://pbs.twimg.com/media/EHg781MWoAAqkcH?format=jpg&name=4096x4096)
 
 the truth is shawn bullies the cat ¯\\\_(ツ)_/¯
 
-![](https://i.imgur.com/rYPK5Zc.jpg)
+![shawn bully cat](https://i.imgur.com/rYPK5Zc.jpg)
 
 https://i.imgur.com/rYPK5Zc.jpg
 
 so the cat tries to eat him
 
-![](https://i.imgur.com/j8hw1p4.jpg)
+![cat eat shawn](https://i.imgur.com/j8hw1p4.jpg)
 
 https://i.imgur.com/j8hw1p4.jpg
 
@@ -75,15 +75,15 @@ https://i.imgur.com/j8hw1p4.jpg
 
 we also fond of dogs
 
-![](https://i.imgur.com/9gguyKD.jpg)
+![life goals](https://i.imgur.com/9gguyKD.jpg)
 
 https://i.imgur.com/9gguyKD.jpg
 
-![](https://i.imgur.com/TazYlf6.jpg)
+![tired puppy needs more sleep](https://i.imgur.com/TazYlf6.jpg)
 
 https://i.imgur.com/TazYlf6.jpg
 
-![](https://i.imgur.com/Y6giQCK.jpg)
+![how every weekend should be like](https://i.imgur.com/Y6giQCK.jpg)
 
 https://i.imgur.com/Y6giQCK.jpg
 
@@ -99,3 +99,6 @@ https://i.imgur.com/0g8NWj2.gif
 
 https://i.imgur.com/zoS3PX3.gif
 
+![sleepy dogs are da best](https://i.imgur.com/GceTryL.jpg)
+
+https://i.imgur.com/GceTryL.jpg
