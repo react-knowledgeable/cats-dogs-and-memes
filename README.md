@@ -86,3 +86,12 @@ https://i.imgur.com/TazYlf6.jpg
 ![](https://i.imgur.com/Y6giQCK.jpg)
 
 https://i.imgur.com/Y6giQCK.jpg
+
+![more sleepy dogs](https://i.imgur.com/d8QvEPb.png)
+
+https://i.imgur.com/d8QvEPb.png
+
+![wei promised she be liddat when her foot injured](https://i.imgur.com/zoS3PX3.gif)
+
+https://i.imgur.com/zoS3PX3.gif
+
