@@ -91,6 +91,10 @@ https://i.imgur.com/Y6giQCK.jpg
 
 https://i.imgur.com/d8QvEPb.png
 
+![huijing's greeting with corgi](https://i.imgur.com/0g8NWj2.gif)
+
+https://i.imgur.com/0g8NWj2.gif
+
 ![wei promised she be liddat when her foot injured](https://i.imgur.com/zoS3PX3.gif)
 
 https://i.imgur.com/zoS3PX3.gif
