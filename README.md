@@ -9,6 +9,10 @@
 
 https://i.imgur.com/G0lUNBH.gif
 
+![be brave](https://i.imgur.com/NfQYVoG.gif)
+
+https://i.imgur.com/NfQYVoG.gif
+
 seriously there's a competition around who has the cutest cats
 
 ![#notamusedcatface](https://i.imgur.com/nMpCcSi.jpg)
