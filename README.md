@@ -13,6 +13,34 @@ https://i.imgur.com/G0lUNBH.gif
 
 https://i.imgur.com/NfQYVoG.gif
 
+![be bold](https://i.imgur.com/4OByNDj.gif)
+
+https://i.imgur.com/4OByNDj.gif
+
+![yaaassssss](https://i.imgur.com/63kS7bM.gif)
+
+https://i.imgur.com/63kS7bM.gif
+
+![i want it now now now now now](https://i.imgur.com/3nLbwvB.gif)
+
+https://i.imgur.com/3nLbwvB.gif
+
+![i'm not tired](https://i.imgur.com/6hcqc5a.gif)
+
+https://i.imgur.com/6hcqc5a.gif
+
+![life goals](https://i.imgur.com/XUdaV1t.gif)
+
+https://i.imgur.com/XUdaV1t.gif
+
+![oh hai the floor is great](https://i.imgur.com/HhEMXDR.gif)
+
+https://i.imgur.com/HhEMXDR.gif
+
+![behave, child](https://i.imgur.com/WYd88d3.gif)
+
+https://i.imgur.com/WYd88d3.gif
+
 seriously there's a competition around who has the cutest cats
 
 ![#notamusedcatface](https://i.imgur.com/nMpCcSi.jpg)
