@@ -14,69 +14,75 @@
 
 ⬆️ https://i.imgur.com/G0lUNBH.gif
 
+
 ![be brave](https://i.imgur.com/NfQYVoG.gif)
 
-⬆️https://i.imgur.com/NfQYVoG.gif
+⬆️ https://i.imgur.com/NfQYVoG.gif
+
 
 ![be bold](https://i.imgur.com/4OByNDj.gif)
 
 ⬆️ https://i.imgur.com/4OByNDj.gif
 
+
 ![yaaassssss](https://i.imgur.com/63kS7bM.gif)
 
 ⬆️ https://i.imgur.com/63kS7bM.gif
+
 
 ![i want it now now now now now](https://i.imgur.com/3nLbwvB.gif)
 
 ⬆️ https://i.imgur.com/3nLbwvB.gif
 
+
 ![i'm not tired](https://i.imgur.com/6hcqc5a.gif)
 
 ⬆️ https://i.imgur.com/6hcqc5a.gif
+
 
 ![life goals](https://i.imgur.com/XUdaV1t.gif)
 
 ⬆️ https://i.imgur.com/XUdaV1t.gif
 
+
 ![oh hai the floor is great](https://i.imgur.com/HhEMXDR.gif)
 
 ⬆️ https://i.imgur.com/HhEMXDR.gif
+
 
 ![behave, child](https://i.imgur.com/WYd88d3.gif)
 
 ⬆️ https://i.imgur.com/WYd88d3.gif
 
-seriously there's a competition around who has the cutest cats
-
-![#notamusedcatface](https://i.imgur.com/nMpCcSi.jpg)
-
-⬆️ https://i.imgur.com/nMpCcSi.jpg
-
-Meme face cat ¯\_(ツ)_/¯
-
-![when the cat owns the place](https://i.imgur.com/wN8k50b.jpg)
-
-⬆️ https://i.imgur.com/wN8k50b.jpg
-
-Random korean cafe cat
-
-![when a kitten realises how good-looking it is](https://i.imgur.com/KY123C8.jpg)
-
-⬆️ https://i.imgur.com/KY123C8.jpg
-
-Paul's cat
-
-![Pixel being cheeky](https://i.imgur.com/ePgIOPi.jpg)
-
-⬆️ https://i.imgur.com/ePgIOPi.jpg
-
-Rachel's cat
 
 ![actually from a plane movie thumbnail](https://i.imgur.com/7M7ehtF.jpg)
 
-⬆️ https://i.imgur.com/7M7ehtF.jpg
+⬆️ https://i.imgur.com/7M7ehtF.jpg Yet another meme face cat 
 
-Yet another meme face cat 
+
+seriously there's a competition around who has the cutest cats
+
+
+![#notamusedcatface](https://i.imgur.com/nMpCcSi.jpg)
+
+⬆️ https://i.imgur.com/nMpCcSi.jpg Meme face cat ¯\\\_(ツ)_/¯
+
+
+![when the cat owns the place](https://i.imgur.com/wN8k50b.jpg)
+
+⬆️ https://i.imgur.com/wN8k50b.jpg Random korean cafe cat
+
+
+![when a kitten realises how good-looking it is](https://i.imgur.com/KY123C8.jpg)
+
+⬆️ https://i.imgur.com/KY123C8.jpg Paul's cat
+
+
+![Pixel being cheeky](https://i.imgur.com/ePgIOPi.jpg)
+
+⬆️ https://i.imgur.com/ePgIOPi.jpg Rachel's cat
+
+
 
 ### brian's cat
 
