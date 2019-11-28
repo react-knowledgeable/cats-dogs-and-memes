@@ -140,6 +140,6 @@ https://i.imgur.com/zoS3PX3.gif
 
 https://i.imgur.com/GceTryL.jpg
 
-![add handsome winter puppy](https://i.imgur.com/l4D44NH.png)
+![do it](https://i.imgur.com/l4D44NH.png)
 
 ⬆️ https://i.imgur.com/l4D44NH.png
