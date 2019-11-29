@@ -82,8 +82,6 @@ seriously there's a competition around who has the cutest cats
 
 ⬆️ https://i.imgur.com/ePgIOPi.jpg Rachel's cat
 
-
-
 ### brian's cat
 
 apparently we have a [brian's faction](https://twitter.com/brian_d_vaughn/status/1188653525556875264)
@@ -93,6 +91,8 @@ latest post by brian:
 ![wei's favourite cat, most likely](https://pbs.twimg.com/media/EH7yE-cVAAAkp4L?format=jpg&name=4096x4096)
 
 ![best face on cat](https://i.imgur.com/m4FAtpG.jpg)
+
+![happy gatsby](https://i.imgur.com/WJfdsrw.jpg)
 
 ### shawn's roommate's cat
 
@@ -113,6 +113,14 @@ so the cat tries to eat him
 ![cat eat shawn](https://i.imgur.com/j8hw1p4.jpg)
 
 ⬆️ https://i.imgur.com/j8hw1p4.jpg
+
+### michael's cat
+
+![fluffy max](https://i.imgur.com/R91XcIy.jpg)
+
+![cat in a box](https://i.imgur.com/3ScT1e0.jpg)
+
+![dont' be saddddd](https://i.imgur.com/N6jQKfC.jpg)
 
 ## dogs
 
