@@ -92,7 +92,7 @@ latest post by brian:
 
 ![best face on cat](https://i.imgur.com/m4FAtpG.jpg)
 
-![happy gatsby](https://i.imgur.com/WJfdsrw.jpg)
+![happy gatsby](https://i.imgur.com/pZcTZNh.jpg)
 
 ### shawn's roommate's cat
 
@@ -157,3 +157,7 @@ we also fond of dogs
 ![do it](https://i.imgur.com/l4D44NH.png)
 
 ⬆️ https://i.imgur.com/l4D44NH.png
+
+![just stay in bed](https://i.imgur.com/qf1kGXM.jpg)
+
+⬆️ https://i.imgur.com/qf1kGXM.jpg
