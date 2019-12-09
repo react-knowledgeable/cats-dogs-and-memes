@@ -39,6 +39,9 @@
 
 ⬆️ https://i.imgur.com/6hcqc5a.gif
 
+![sleep is bliss](https://i.imgur.com/HELVWiM.gif)
+
+⬆️ https://i.imgur.com/HELVWiM.gif
 
 ![life goals](https://i.imgur.com/XUdaV1t.gif)
 
