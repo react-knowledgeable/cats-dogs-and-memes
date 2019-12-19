@@ -109,6 +109,8 @@ latest post by brian:
 
 ![happy gatsby](https://i.imgur.com/pZcTZNh.jpg)
 
+![i'm handsome and i know it](https://i.imgur.com/m3Vjzwz.jpg)
+
 ### shawn's roommate's cat
 
 then our friend swyx got a roommate's cat that we all love, [he has a twitter thread here](https://twitter.com/swyx/status/1154385946575560705), which makes it easier to follow than brian's, and latest post is something huijing clearly traumatized herself from
