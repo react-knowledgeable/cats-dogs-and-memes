@@ -80,6 +80,21 @@
 ⬆️ https://i.imgur.com/mTBzExC.jpg
 
 
+![but i don't wanna do work](https://i.imgur.com/QWnaWia.jpg)
+
+⬆️ https://i.imgur.com/QWnaWia.jpg
+
+
+![mood](https://i.imgur.com/o4MnJQF.jpg)
+
+⬆️ https://i.imgur.com/o4MnJQF.jpg
+
+
+![zomg wat is dis](https://i.imgur.com/QHLXY1L.jpg)
+
+⬆️ https://i.imgur.com/QHLXY1L.jpg
+
+
 seriously there's a competition around who has the cutest cats
 
 
@@ -184,3 +199,5 @@ we also fond of dogs
 ![just stay in bed](https://i.imgur.com/qf1kGXM.jpg)
 
 ⬆️ https://i.imgur.com/qf1kGXM.jpg
+
+p.s. the alt text is pretty good yo
