@@ -95,6 +95,11 @@
 ⬆️ https://i.imgur.com/QHLXY1L.jpg
 
 
+![may all your weekends be like dis](https://i.imgur.com/OJSW3HW.jpg)
+
+⬆️ https://i.imgur.com/OJSW3HW.jpg
+
+
 seriously there's a competition around who has the cutest cats
 
 
@@ -199,5 +204,13 @@ we also fond of dogs
 ![just stay in bed](https://i.imgur.com/qf1kGXM.jpg)
 
 ⬆️ https://i.imgur.com/qf1kGXM.jpg
+
+![🐕❤️🦔](https://i.imgur.com/V0oFHL0.jpg)
+
+⬆️ https://i.imgur.com/V0oFHL0.jpg
+
+![be like sleepy puppy](https://i.imgur.com/HZSsZQ3.jpg)
+
+⬆️ https://i.imgur.com/HZSsZQ3.jpg
 
 p.s. the alt text is pretty good yo
