@@ -226,4 +226,8 @@ we also fond of dogs
 
 ⬆️ https://i.imgur.com/aV1dOsm.jpg
 
+![so handsome...](https://i.imgur.com/DnN1ZZp.jpg)
+
+⬆️ https://i.imgur.com/DnN1ZZp.jpg
+
 p.s. the alt text is pretty good yo
